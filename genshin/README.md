@@ -1,2 +1,1 @@
-原神图标
-采集自sngx大佬，感谢！
+Genshin icon from sngx, thanks!
