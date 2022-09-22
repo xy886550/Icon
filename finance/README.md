@@ -1,2 +1,2 @@
 
-金融Icon for MoneyWiz，自用修改
+Finance icon for MoneyWiz，自用
